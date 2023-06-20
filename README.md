@@ -7,3 +7,5 @@
 
 ## 3. projektem: PotatoCraft
 ![alt text](https://i.imgur.com/1GArT3O.png)
+
+# MINDENKINEK INGYEN CSINÁLOK WEBOLDALT!
